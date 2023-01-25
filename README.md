@@ -9,3 +9,6 @@ About Me
     🌱   Enthusiast in cyber Security and Artificial Intelligence .
     ✍️   Watching Anime and trying out latest design trends as hobbies/side hustles.
     ☕   I belive, a perfect cup of coffee can be the ultimate solution for any stress.
+
+
+mail: claydell215@gmail.com
